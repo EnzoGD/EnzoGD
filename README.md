@@ -14,8 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->enzo.perlato@escola.pr.gov.br
+I
 Aludo do Jk-1b
-
+I
 Personagem favorito: Kyojurou Rengoku
-
+I
 Futura profissão: Programador
