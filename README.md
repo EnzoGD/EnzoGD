@@ -19,6 +19,6 @@ Aludo do Jk-2b
 I
 Personagem favorito: Kyojurou Rengoku
 I
-Futura profissão: Programador
+Futura profissão: Dev de software
 
 ![download](https://user-images.githubusercontent.com/106977951/178041627-2e419d71-e1ad-44e4-acd0-9a94804ed54e.jpg)
